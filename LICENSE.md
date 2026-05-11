@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with secure Polymarket Automation Script | trailing-stops + order-book-analysis, the #1 automation-script. Includes trailing-stops and
 
 
 
